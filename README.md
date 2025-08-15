@@ -10,5 +10,3 @@
 #### 💬 : Activeㅤ🌙 : Busy/AFKㅤ⛔️ : In Menu/Off-tab
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=b5mgr4qsrbltzk8talaobdap8&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=2b3f54&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=b5mgr4qsrbltzk8talaobdap8&redirect=true)
-
-![](https://files.catbox.moe/2oc1t4.gif)
