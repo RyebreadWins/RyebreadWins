@@ -1,6 +1,6 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=RyebreadWins&abbreviated=true&color=67aeeb&style=plastic&label=‎𓈒˖𝜗𝜚)　　　　　　　　՞߹ - ߹՞
+![](https://komarev.com/ghpvc/?username=RyebreadWins&color=grey&style=for-the-badge&label=𝝑𓏲)　　　　　　՞߹ - ߹՞　　　　　　![](https://files.catbox.moe/byx1ot.gif)
 
 ![](https://files.catbox.moe/7bmgt3.webp) ![](https://files.catbox.moe/sqg097.webp) ![](https://files.catbox.moe/8aibhr.webp)
 
